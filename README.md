@@ -49,8 +49,8 @@ To get started with the Vulhub environments:
 
 ## 📫 Contact
 
-Feel free to reach out or connect with me on [LinkedIn](https://www.linkedin.com/in/yourprofile)  
-Email: your.email@example.com
+Feel free to reach out or connect with me on [LinkedIn](https://www.linkedin.com/in/cyrilkthomas)  
+Email: cyrilkthomasest.1991@gmail.com
 
 ---
 
